@@ -6,6 +6,7 @@ The last few weeks have seen the values of cryptocurrencies collapse, some losin
 China currently leads the world in production electronic equipment. In 2012, China produced about 12.2 million tons (11.1 million metric tons), followed by the U.S. with about 11 million tons (10 million metric tons) , just imagine how much is big this market ... and Bionic will be lead this market in the near future . Now that we are in the clear that the world see revolution electronic it is best to invest in a coin that will be lead the electronic world , and BINC does exactly that .
 
 What does it mean to invest in Bionic?
+=====================================
 
 In order to answer this question the first thing you need to answer is what do you mean when you say you want to invest in Bionic. Do you want to buy the currency in hopes it will appreciate it value? Do you want to invest in Bionic related companies? Are you looking to day buy anything electronic with it ?
 
