@@ -1,3 +1,6 @@
+Bionic Intro :
+=============
+
 The last few weeks have seen the values of cryptocurrencies collapse, some losing more than half their value. There is definitely lots of panic selling going on right now. Unfortunately, things are only going to get worse especially with the latest news that Tether could be in trouble with the authorities.
 
 China currently leads the world in production electronic equipment. In 2012, China produced about 12.2 million tons (11.1 million metric tons), followed by the U.S. with about 11 million tons (10 million metric tons) , just imagine how much is big this market ... and Bionic will be lead this market in the near future . Now that we are in the clear that the world see revolution electronic it is best to invest in a coin that will be lead the electronic world , and BINC does exactly that .
